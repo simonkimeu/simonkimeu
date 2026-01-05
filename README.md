@@ -43,7 +43,7 @@ To become a trusted technology and cybersecurity partner by delivering secure, s
 
 ## 📬 Contact & Professional Links
 - 📧 Email: *(mekakimeu@gmail.com)*
-- 💬 WhatsApp: *(+254-710-924456)*
+- 💬 WhatsApp: *(+254710924456)*
 - 🔗 LinkedIn: https://linkedin.com/in/meka-kimeu-3121b522a
 - 🐦 X (Twitter): https://x.com/mekakimeu
 
